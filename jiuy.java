@@ -1,1 +1,5 @@
-some bghb bvhn 
+function iost(){
+    mjn 
+
+    mkjkjm
+}
